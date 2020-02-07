@@ -8,3 +8,5 @@ by 露易娘 Ruimusume</br>
 TID:0100B2B00BDEE000</br>
 BID:bb6a24337631cb28
 
+<img src="https://imgur.com/67PFfGQ.jpg" alt="ルルアのアトリエ"/>
+<img src="https://imgur.com/Wg2LS7Y.jpg" alt="ルルアのアトリエ"/>
